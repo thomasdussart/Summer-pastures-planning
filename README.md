@@ -8,3 +8,11 @@ __06/07/2020 to to 24/07/2020__
     * Portfolio
 
 * Search for an internship
+
+__27/07/2020 to 31/07/2020__
+
+**Holidays**
+
+__August__
+
+**TBD**
