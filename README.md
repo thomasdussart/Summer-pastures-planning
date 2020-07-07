@@ -1,4 +1,4 @@
-# Summer-pastures-planning
+# Summer pastures battleplan
 
 
 __06/07/2020 to to 24/07/2020__
