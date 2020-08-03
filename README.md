@@ -15,4 +15,5 @@ __27/07/2020 to 31/07/2020__
 
 __August__
 
-* _TBD_
+* Prepare interview from 3/08/2020 5/08/2020 
+* _TBD from the interview result_
